@@ -1,0 +1,6 @@
+- [http://kyrotoomaza744.github.io/](http://kyrotoomaza744.github.io/)
+- [https://medium.com/@kyrotoomaza744](https://medium.com/@kyrotoomaza744)
+- [https://www.quora.com/profile/Kyroto-Omaza](https://www.quora.com/profile/Kyroto-Omaza)
+- [https://x.com/kyrotoomaza744](https://x.com/kyrotoomaza744)
+- [https://www.reddit.com/user/No-Page3214/](https://www.reddit.com/user/No-Page3214/)
+- [https://www.pinterest.com/kyrotoo/](https://www.pinterest.com/kyrotoo/)
